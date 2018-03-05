@@ -1,0 +1,2 @@
+# wiki
+:v: life wiki
