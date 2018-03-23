@@ -19,4 +19,4 @@
      7. insérer le steak caché sous vos serviettes en papier dans le nouveau burger
      8. déguster
      
-     <br/> :warning: :warning: :warning: Cette méthode n'est pas sans risque : vous serez sans commune mesure ce qui s'apparenterait à un fils de pute en abusant de cette astuce. :warning: :warning: :warning:
+     <br/> :warning: :warning: :warning: Cette méthode n'est pas sans risque : forts risques de transformation en fils de pute :warning: :warning: :warning:
