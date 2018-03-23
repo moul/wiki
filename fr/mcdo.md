@@ -19,4 +19,4 @@
      7. insérer le steak caché sous vos serviettes en papier dans le nouveau burger
      8. déguster
      
-     <br/> :warning: :warning: :warning: Cette méthode n'est pas sans risque : forts risques de transformation en fils de pute :warning: :warning: :warning:
+     <br/> 👏👏👏 félicitations, vous êtes une ordure 👏👏👏
