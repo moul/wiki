@@ -3,4 +3,5 @@ qui peuvent se placer n'importe où dans une conversation sans avoir la moindre 
  
 * "Appellons un chat un chat"
 * "Il faudrait y réfléchir, mais..."
-* "Tout est relatif
+* "Tout est relatif"
+* "C'est pas faux"
